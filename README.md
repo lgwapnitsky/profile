@@ -1,1 +1,0 @@
-# lgwapnitskyprofile.github.io
